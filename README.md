@@ -1,0 +1,2 @@
+# WeFundxMaxGlobal
+We Fund PLatform
